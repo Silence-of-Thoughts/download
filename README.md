@@ -1,6 +1,16 @@
 # download
-available for download
+
+## read.me
 
 # Silence of Thoughts
+
 ## Ein Bild
-## Split-Songle
+- _todo_
+
+## Seven Inch
+
+## Split 7´´
+- _todo_
+
+ ----
+ (c) Silence of Thoughts. May the 4th be with you
